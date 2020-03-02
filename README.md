@@ -9,7 +9,7 @@ maybe sometime it will devided to:<br>
 -AK-R.           | Cyber and mid space truth volunteer<br>
 -Cy.VR.          | Cyber and mid space humanity volunteer<br> 
 -AI berasa.      | AI management system <br>
--AK Lib.         | SMAKBo Libraries<br>
+-AK Lib.         | Analis kimia Libraries<br>
 
 
 3 maret edit = 
