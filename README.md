@@ -10,3 +10,9 @@ maybe sometime it will devided to:<br>
 -Cy.VR.          | Cyber and mid space humanity volunteer<br> 
 -AI berasa.      | AI management system <br>
 -AK Lib.         | SMAKBo Libraries<br>
+
+
+3 maret edit = 
+cyber moeslem<br>
+"Anna Lisa" for Chemical Analyst<br>
+Blackmail guide; cyber space and  ethical hacking for 454blackmailer's member
